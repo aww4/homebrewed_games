@@ -5,9 +5,7 @@
 
 3) Game Basics. Two decks of cards. Beer pong balls. Lots of dice, preferably not just D6 but you can do a lot without the weird dice. Chess & Checkers, if you like them. Buying these, particularly dice, on their own help the partner-who-can’t-stand-when-there’s-no-dice-left-in-yahtzee and they typically are sold solo so getting a few for cheap isn’t hard. Learn to shuffle your cards properly, with a bridge. Wear out your cards, so you can hand them to others who need to practice shuffling. This is just straight up advice, but it is good advice. Also, consider a bell. No game is harmed by the “drink when anyone hits the bell” rule.
 
-4) Games Bought for Their Component-ality. When in the games aisle, pick these not on whether they would be a good standalone game, but how you might enjoy a round of it as a mini game or step toward a larger goal. Go Tos include scattergories, pun or accent games, variations on the newlyweds game, dollar store flick the football into the suction goal posts.
-
-None of the Quirky Adult Games belong in this pile. It is unpleasant to switch from good clean drinking fun to dirty lame non drinking fun. Own them for their own stake, they are good games, but think carefully about Cards Against Humanities style additions if you want to pillage them for smorgasboard games.
+4) Games Bought for Their Component-ality. When in the games aisle, pick these not on whether they would be a good standalone game, but how you might enjoy a round of it as a mini game or step toward a larger goal. Go Tos include scattergories, pun or accent games, variations on the newlyweds game, dollar store flick the football into the suction goal posts. None of the Quirky Adult Games belong in this pile. It is unpleasant to switch from good clean drinking fun to dirty lame non drinking fun. Own them for their own stake, they are good games, but think carefully about Cards Against Humanities style additions if you want to pillage them for smorgasboard games.
 
 5) Final Note: If someone in your household is very attached to a game *cough* NFL Showdown *cough*, leave it alone. Pillaged games are rarely made whole. You may say you’ll put it back together, but if you love terrible games, you probably won’t. Let NFL Showdown be; you don’t need the kicker stand *that* much
 
@@ -21,39 +19,37 @@ None of the Quirky Adult Games belong in this pile. It is unpleasant to switch f
 1) Slot glasses
 2) Bags/cups/extra piece or dice in-game storage — also! envelopes!
 3) Things that can be changed from one state to another: timers/hourglasses, flashlights, bells, change, speakers for music, beads, masks, kazoos
-4) If a drinking game, bring the liquor and mixers to the table
-4.1) If a game with shots, mix lots of shots in something with a pour spout and bring it to the table with the liquors you used to make it
-4.1.1) Recommended components, in case you were wondering: vodka (Smirnoff or (hopefully) better), schnapps (watermelon!), lemon-lime soda, grenadine, elderflower syrup, lime juice (FROM A PHYSICAL LIME !!), cranberry juice cocktail
+4) If a drinking game, bring the liquor and mixers to the table. If its a game with shots, mix lots of shot in something with a pour spout and bring it to the table with the liquors you used to make it. Recommended components, in case you were wondering: vodka (Smirnoff or (hopefully) better), schnapps (watermelon!), lemon-lime soda, grenadine, elderflower syrup, lime juice (FROM A PHYSICAL LIME !!), cranberry juice cocktail
 
 # Every Game We Own, for Reference
-Blockbuster
-Candyland
-Checkers
-Chess*
-Chutes & Ladders
-Cluedo, Bletchley Park themed
-Drink If (a bachelorette party game)
-Dominos
-Famous Women Quiz
-For the Girls
-Guess Who: High School Reunion
-NFL Showdown (see #5 from first section)
-Punderdome
-Rummikub
-Scattergories
-Skyjo
-Smartish
-Sorry!
-The Best Friend Game
-Top Gun Strategy Game
-Trouble
-True American**
-Twister
-Udder Nonsense
-Uno
-Unrivaled
-Weed Wars
-Yahtzee!
+1) Blockbuster
+2) Candyland
+3) Checkers
+4) Chess*
+5) Chutes & Ladders
+6) Cluedo, Bletchley Park themed
+7) Drink If (a bachelorette party game)
+8) Dominos
+9) Famous Women Quiz
+10) For the Girls
+11) Guess Who: High School Reunion
+12) NFL Showdown (see #5 from first section)
+13) Punderdome
+14) Rummikub
+15) Scattergories
+16) Skyjo
+17) Smartish
+18) Sorry!
+19) The Best Friend Game
+20) Top Gun Strategy Game
+21) Trouble
+22) True American**
+23) Twister
+24) Udder Nonsense
+25) Uno
+26) Unrivaled
+27) Weed Wars
+28) Yahtzee!
 
 * We own like 4 sets of chess pieces by now and one good and one shitty board. I recommend at least one <$8 and one >$30 because shot glasses do not belong on good boards and the pinnacle of your wisdom and good judgement does not belong on a board with a fold. More chess pieces are more fun - 5 person chess, for example, requires at least 4 of everything
 
