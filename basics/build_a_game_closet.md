@@ -33,23 +33,24 @@
 9) Famous Women Quiz
 10) For the Girls
 11) Guess Who: High School Reunion
-12) NFL Showdown (see #5 from first section)
-13) Punderdome
-14) Rummikub
-15) Scattergories
-16) Skyjo
-17) Smartish
-18) Sorry!
-19) The Best Friend Game
-20) Top Gun Strategy Game
-21) Trouble
-22) True American**
-23) Twister
-24) Udder Nonsense
-25) Uno
-26) Unrivaled
-27) Weed Wars
-28) Yahtzee!
+12) Love Letters
+13) NFL Showdown (see #5 from first section)
+14) Punderdome
+15) Rummikub
+16) Scattergories
+17) Skyjo
+18) Smartish
+19) Sorry!
+20) The Best Friend Game
+21) Top Gun Strategy Game
+22) Trouble
+23) True American**
+24) Twister
+25) Udder Nonsense
+26) Uno
+27) Unrivaled
+28) Weed Wars
+29) Yahtzee!
 
 * We own like 4 sets of chess pieces by now and one good and one shitty board. I recommend at least one <$8 and one >$30 because shot glasses do not belong on good boards and the pinnacle of your wisdom and good judgement does not belong on a board with a fold. More chess pieces are more fun - 5 person chess, for example, requires at least 4 of everything
 
